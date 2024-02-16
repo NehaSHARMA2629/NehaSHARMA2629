@@ -6,7 +6,7 @@
 - ig: _neha_2629
 - snapchat: nehabae2021
 - linkedin: https://www.linkedin.com/in/neha-sharma-bb3629292/
-- 😄 Pronouns: love , rain, attachment
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: you cant breathe with your tounge outside..........perfect 📸
 
 <!---
